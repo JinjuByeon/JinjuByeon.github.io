@@ -1,1 +1,1 @@
-# pearl_portfolio.github.io
+# JinjuByeon.github.io
